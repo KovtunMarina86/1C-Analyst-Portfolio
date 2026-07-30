@@ -33,7 +33,7 @@
 
 ## 📬 Контакты
 
-- 📧 **Email:** m.m.kovtun@yandex.ru
+- 📧 **Email:** mrm.kovtun@yandex.ru
 - 💬 **Telegram:** [@MarinaRU86](https://t.me/MarinaRU86)
 - 📱 **Телефон:** +7 (911) 233-14-36
 
